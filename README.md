@@ -1,1 +1,1 @@
-Alt account of https://github.com/Rishies2010
+## The _ZenOS_ Project's Subsidary Account.
